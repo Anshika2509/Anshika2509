@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **anshika25aneja09@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1f3PpDHeFPsFknYuN5VH6vWmilwu6YORT/view?usp=drivesdk](https://drive.google.com/file/d/1f3PpDHeFPsFknYuN5VH6vWmilwu6YORT/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1vtbEmhw2a7wsng-Yw88IJ8rMuUbU9svH/view?usp=drive_link](https://drive.google.com/file/d/1vtbEmhw2a7wsng-Yw88IJ8rMuUbU9svH/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
